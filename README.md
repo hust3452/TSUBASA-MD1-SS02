@@ -1,1 +1,0 @@
-# TSUBASA-MD1-SS02
